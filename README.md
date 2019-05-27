@@ -1,0 +1,1 @@
+# SegurosEquinoccial.Pymes
